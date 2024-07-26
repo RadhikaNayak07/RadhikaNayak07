@@ -1,4 +1,4 @@
 - 👋 Hai ,I'm Radhika Nayak
 - 👀 I’m interested in Traveling,Puzzles solving,coding,Music 
 - 🌱 I’m currently learning in SDMCET Dharwad,Karnataka.
-- 📫 How to reach me through linkedIn http://www.linkedin.com/in/radhika-nayak-4187a4275
+- 📫 You can reach me through linkedIn http://www.linkedin.com/in/radhika-nayak-4187a4275
